@@ -30,9 +30,6 @@ It can include:
 - Stay away from the person if possible.  
 - Save proof like messages, emails, screenshots, etc.  
 - Report the incident to HR or the Internal Complaints Committee (ICC) in your organization.  
-> **Important:**  
-> If the behaviour is unwelcome and makes someone uncomfortable, it can be considered sexual harassment.
-
 ---
 ### If you witness harassment:
 - Support the person who is affected.  
